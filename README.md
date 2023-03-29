@@ -1,1 +1,0 @@
-# panulaangschrodinger.github.io
